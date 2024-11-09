@@ -1,4 +1,4 @@
-https://bioshockrapturee.carrd.co
+[https://bioshockrapturee.carrd.co](https://oceanicccity.carrd.co)
 Read my Carrd ! 
 
 <!---
